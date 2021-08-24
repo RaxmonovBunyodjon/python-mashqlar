@@ -1,1 +1,1 @@
-# try5
+# dasturlar mashqlar
